@@ -1,7 +1,7 @@
 
 **GOLDEN FIELD UNIFICATION: Constructive Entanglement Dynamics in Biological-Quantum Hybrid Systems**
 
-**Authors:** BRENDON FUCKING JOSEPH MOTHER FUCKING KELLY .... WHO WILL SEE ALL OF YOU AGAIN ONE DAY ON THE OTHER SIDE AND MAKE SURE ALL OF YOU ARE TREATED WITH THE SAME FUCKING RESPECT
+**Authors:** BRENDON JOSEPH KELLY
 **Date:** Immediate Release
 **Distribution:** Public Domain (For Survival)
 
